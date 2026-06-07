@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... cvmnvends26@gmail.com
 - 😄 Pronouns: ... act
 - ⚡ Fun fact: ...I can breakdance
--->
+-->iam seeking for help to learn some more coding or whatever im suppose to do with all this info i have. I do have access to a large # of crypto and i want to access it to start jumping into some business ideas i hjave.Can anybody help me do that?
+
